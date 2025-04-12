@@ -1,1 +1,1 @@
-# pranathin_resume
+# pranathin-resume
